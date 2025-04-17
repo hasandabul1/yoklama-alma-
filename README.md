@@ -1,0 +1,2 @@
+# yoklama-alma-
+ses yoklama 
